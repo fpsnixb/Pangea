@@ -10,4 +10,6 @@
 
 ## PANGEA
 
+<img width="3610" height="1810" alt="Image" src="https://github.com/user-attachments/assets/f0f1e228-b267-4a79-b496-5d79d87f3d9c" />
+
 # ADIOS
