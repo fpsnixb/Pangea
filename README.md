@@ -18,3 +18,5 @@ Yo cree the witcher.
 <img width="3610" height="1810" alt="Image" src="https://github.com/user-attachments/assets/f0f1e228-b267-4a79-b496-5d79d87f3d9c" />
 
 # ADIOS
+
+<img width="495" height="495" alt="Image" src="https://github.com/user-attachments/assets/56f07a54-35d7-4356-86c3-b3f5c9bd9f13" />
