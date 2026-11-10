@@ -3,10 +3,15 @@
 ## Mis Logros
 
 #### 1. TOP GLOBAL EN FORTNITE 🔫
+Maestro de fortnite desde la temporada uno!
 #### 2. DONAR ORGANOS A PERSONAS NECESITADAS ⛑️
+Donador activo de organos sin lucro.
 #### 3. AYUDAR PERRITOS DE LA CALLE 🐶
+Creador de un refugio de animales en mi casa.
 #### 4. EMPRESARIO DE EMPRESA MULTIMILLONARIA EN PERU 🇵🇪
+CEO de PREU SA de CV.
 #### 5. CREADOR DE LA SAGA THE WITCHER 🧙‍♂️
+Yo cree the witcher.
 
 ## PANGEA
 
